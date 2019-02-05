@@ -23,6 +23,11 @@ yosemiteの情報いろいろ置くとこ
 https://www.cathaypacific.com/cx/ja_JP/about-us/contact-us/faqs/online-booking-ticket-purchase/changes-cancellation-and-refund.html
 
 サンフランシスコからレンタカーで東へ（ハーツレンタカー？）
+http://4travel.jp/overseas/area/north_america/america-california_state/san_francisco/transport/10448793/
+
+借りた記録的な物
+
+https://4travel.jp/travelogue/10620303
 
 # やりたい事
 - NutCracker ５p 
