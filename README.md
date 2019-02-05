@@ -17,6 +17,8 @@ yosemiteの情報いろいろ置くとこ
 
 # 移動手段
 飛行機、中国東方航空が安いが、トラブル回避するならキャセイパシフィックあたり使うのが良いかも。
+キャンセルもしやすそうなので早めにチケットは押さえておきたい
+https://www.cathaypacific.com/cx/ja_JP/about-us/contact-us/faqs/online-booking-ticket-purchase/changes-cancellation-and-refund.html
 
 サンフランシスコからレンタカーで東へ（ハーツレンタカー？）
 
