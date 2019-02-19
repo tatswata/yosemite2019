@@ -43,3 +43,6 @@ https://4travel.jp/travelogue/10620303
 - Cingular TDMA/AMPS
 - Sprint PCS CDMA/AMPS
 - Verizon CDMA/AMPS
+
+# 画像付きの記録等
+http://www.dakekamba.com/blog/2013/05/24/%E3%83%A8%E3%82%BB%E3%83%9F%E3%83%86%E5%9B%BD%E7%AB%8B%E5%85%AC%E5%9C%92%EF%BC%9Aday7%EF%BC%88yosemite-falls-trail%EF%BC%89/
