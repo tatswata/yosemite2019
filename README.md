@@ -59,3 +59,8 @@ https://www.junglecity.com/enjoy/travel-during-your-stay/15-traffic-rules-japane
 # チップ
 １$札を多めに持っておくと良さそう
 https://eikaiwa.dmm.com/blog/11802/
+
+# 熊対策
+ヨセミテはブラックベアだそうな、やったね
+https://www.yamareco.com/modules/diary/148886-detail-122027
+
