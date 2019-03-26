@@ -51,3 +51,11 @@ https://4travel.jp/travelogue/10620303
 
 # 画像付きの記録等
 http://www.dakekamba.com/blog/2013/05/24/%E3%83%A8%E3%82%BB%E3%83%9F%E3%83%86%E5%9B%BD%E7%AB%8B%E5%85%AC%E5%9C%92%EF%BC%9Aday7%EF%BC%88yosemite-falls-trail%EF%BC%89/
+
+# 交通ルール
+結構色々あった
+https://www.junglecity.com/enjoy/travel-during-your-stay/15-traffic-rules-japanese-should-know/
+
+# チップ
+１$札を多めに持っておくと良さそう
+https://eikaiwa.dmm.com/blog/11802/
